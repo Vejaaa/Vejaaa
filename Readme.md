@@ -1,4 +1,4 @@
-# Hello, I am Veja Shetty - A second year undergrad
+# Hello, I am Veja Shetty - A second year undergrad student
 
 
 ### :woman_technologist: &nbsp;About Me 😊:
